@@ -38,3 +38,42 @@ Kreative, alternative Viertel mit vielen Cafés, Bars, Secondhandläden und Stre
 
 #### Münchner Biergärten (z. B. Hirschgarten oder Augustiner-Keller)
 Hier erlebst du echte Biergartenkultur. Im Hirschgarten laufen sogar Rehe frei herum. Du darfst deine eigene Brotzeit mitbringen – ein bayerischer Brauch! Unter Kastanienbäumen bei einem kühlen Hellen den Tag ausklingen lassen.
+
+
+## Kunst & Kultur
+#### Alte Pinakothek
+Europäische Meisterwerke vom Mittelalter bis 1800. Klassiker wie Dürer, Rubens, Rembrandt.
+
+#### Neue Pinakothek (derzeit wegen Renovierung geschlossen)
+Jh. bis zur klassischen Moderne – Van Gogh, Monet, Klimt.
+
+#### Pinakothek der Moderne
+Zeitgenössische Kunst, Design, Architektur und Grafik unter einem Dach – sehr modern und imposant.
+
+#### Museum Brandhorst
+Zeitgenössische Kunst mit Fokus auf Andy Warhol und Cy Twombly. Auch die Architektur ist ein Hingucker.
+
+#### Lenbachhaus
+Berühmt für die Werke des „Blauen Reiters“ – Kandinsky, Marc & Co. Toll in der Verbindung aus Historie und Moderne.
+
+
+## Technik, Natur & Wissenschaft
+#### Deutsches Museum
+Eines der größten Technik- und Naturwissenschaftsmuseen der Welt. Ideal für jedes Alter – von alten Flugzeugen bis zu interaktiven Experimenten.
+
+
+#### Verkehrszentrum (Deutsches Museum)
+Fokus auf Mobilität: Züge, Autos, Fahrräder, Zeitreise durch die Verkehrs-Geschichte.
+
+#### BMW Museum
+Geschichte, Design und Innovation rund um die Marke BMW – stylisch, modern und auch für Nicht-Autofans ein Erlebnis.
+
+## Geschichte & Spezialthemen
+#### Münchner Stadtmuseum
+Sehr vielseitig: Stadtgeschichte, Musik, Mode, Puppentheater und mehr. Aktuell zum Teil wegen Umbau geschlossen.
+
+#### NS-Dokumentationszentrum
+Beeindruckend nüchterne Aufarbeitung der NS-Geschichte Münchens – sehr gut gemacht, lehrreich und bewegend.
+
+#### Jüdisches Museum München
+Kleines, aber informatives Museum zur jüdischen Kultur, Geschichte und Gegenwart in München. Direkt am Jakobsplatz.
