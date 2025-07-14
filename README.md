@@ -105,3 +105,28 @@ Urig gelegen an der Isar, mitten im Grünen. Besonders beliebt bei jungen Leuten
 
 #### Hofbräukeller am Wiener Platz
 Nicht zu verwechseln mit dem Hofbräuhaus! Hier gibt’s bayerische Gemütlichkeit ohne Massentourismus. Schöner Biergarten unter alten Kastanien, direkt am Wiener Platz in Haidhausen. Auch mit Spielplatz – ideal für Familien.
+
+## Essen
+
+### Japanisch
+[Mitani](https://www.google.com/search?q=mitani+japanisch&oq=mitani&gs_lcrp=EgZjaHJvbWUqCAgAEEUYJxg7MggIABBFGCcYOzIGCAEQRRg5MgYIAhBFGEAyFQgDEC4YFBivARjHARiHAhiABBiOBTINCAQQLhivARjHARiABDIGCAUQRRg8MgYIBhBFGDwyBggHEEUYPNIBBzk3MWowajeoAgCwAgA&sourceid=chrome&ie=UTF-8)
+
+### Afghanisch
+[Chopan am Gasteig](https://chopan-am-gasteig.de/)
+
+### Indisch
+[Bombay Tandoori](https://www.bombay-tandoori.de/)
+
+### Vietnamesisch
+[Ha Vietnamese](https://www.ha-vietnamesecuisine.de/)
+
+## Coole Locations für Drinks
+[Ganz Wo anders](https://maps.app.goo.gl/pCAFPcGEJrRRG3RaA)
+[Dachgarten Gasteig](https://maps.app.goo.gl/MCcegnJxMLQTmQGs6)
+[Munich Beach Resort](https://maps.app.goo.gl/nvU3CCj57hy6LWjB9)
+
+## Gute Cocktails
+[Barroom](https://g.co/kgs/zEj2iqv)
+
+
+
