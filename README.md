@@ -120,10 +120,10 @@ Nicht zu verwechseln mit dem Hofbräuhaus! Hier gibt’s bayerische Gemütlichke
 ### Vietnamesisch
 - [Ha Vietnamese](https://www.ha-vietnamesecuisine.de/)
 
-### Thailandisch
+### Thailändisch
 - [Spicery](https://maps.app.goo.gl/w5Wm8S8g7J22qH4EA)
 
-### Veganische Asiatische Fusionsküche
+### Vegane Asiatische Fusionsküche
 - [Ahimsa](https://maps.app.goo.gl/4jyiXwRUtqDdE3c58)
 
 ## Coole Locations für Drinks
