@@ -109,7 +109,7 @@ Nicht zu verwechseln mit dem Hofbräuhaus! Hier gibt’s bayerische Gemütlichke
 ## Essen
 
 ### Japanisch
-[Mitani](https://www.google.com/search?q=mitani+japanisch&oq=mitani&gs_lcrp=EgZjaHJvbWUqCAgAEEUYJxg7MggIABBFGCcYOzIGCAEQRRg5MgYIAhBFGEAyFQgDEC4YFBivARjHARiHAhiABBiOBTINCAQQLhivARjHARiABDIGCAUQRRg8MgYIBhBFGDwyBggHEEUYPNIBBzk3MWowajeoAgCwAgA&sourceid=chrome&ie=UTF-8)
+- [Mitani](https://www.google.com/search?q=mitani+japanisch&oq=mitani&gs_lcrp=EgZjaHJvbWUqCAgAEEUYJxg7MggIABBFGCcYOzIGCAEQRRg5MgYIAhBFGEAyFQgDEC4YFBivARjHARiHAhiABBiOBTINCAQQLhivARjHARiABDIGCAUQRRg8MgYIBhBFGDwyBggHEEUYPNIBBzk3MWowajeoAgCwAgA&sourceid=chrome&ie=UTF-8)
 
 ### Afghanisch
 - [Chopan am Gasteig](https://chopan-am-gasteig.de/)
