@@ -19,6 +19,7 @@ Touristisch, ja, aber Kult. Maß Bier, bayerische Musik, Lebkuchenherz auf der B
 #### Residenz München
 Das Stadtpalais der Wittelsbacher: Prunk, Gold, Geschichte. Ideal, wenn du Museen oder Geschichte magst.
 
+## Alternativen & Insider
 
 #### Schloss Nymphenburg
 Etwas außerhalb, aber absolut beeindruckend. Barocke Sommerresidenz mit riesiger Parkanlage, kleinen Schlösschen und Kanälen. Ideal für einen entspannten Spaziergang mit historischem Flair.
