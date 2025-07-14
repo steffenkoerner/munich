@@ -77,3 +77,31 @@ Beeindruckend nüchterne Aufarbeitung der NS-Geschichte Münchens – sehr gut g
 
 #### Jüdisches Museum München
 Kleines, aber informatives Museum zur jüdischen Kultur, Geschichte und Gegenwart in München. Direkt am Jakobsplatz.
+
+## Top Biergärten in München
+#### Königlicher Hirschgarten
+Größter Biergarten der Welt mit über 8.000 Plätzen. Wunderschön unter alten Kastanien, mit einem Wildgehege nebenan. Perfekt für Familien, große Gruppen und alle, die echtes Biergarten-Flair erleben wollen.
+
+#### Augustiner-Keller
+Traditioneller Biergarten mitten in der Stadt, nahe dem Hauptbahnhof. Berühmt für das Augustiner vom Holzfass, urige Stimmung und ein sehr gemischtes, eher einheimisches Publikum.
+
+#### Taxisgarten
+Ein echter Geheimtipp im Stadtteil Neuhausen. Authentisch, gemütlich, kaum Touristen. Beliebt bei Münchnern aus der Nachbarschaft – ideal für entspannte Abende ohne Trubel.
+
+#### Chinesischer Turm (Englischer Garten)
+Einer der bekanntesten Biergärten Münchens, sehr touristisch, aber stimmungsvoll. Oft mit Blaskapelle auf dem Turm. Guter Zwischenstopp nach einem Spaziergang durch den Englischen Garten.
+
+#### Seehaus im Englischen Garten
+Malerisch direkt am Wasser gelegen, mit tollem Blick auf den Kleinhesseloher See. Etwas gehobener, schickes Ambiente, aber trotzdem klassischer Biergartenbetrieb.
+
+#### Aumeister (nördlicher Englischer Garten)
+Etwas ruhiger gelegen, bei Radlern sehr beliebt. Guter Ausgangs- oder Endpunkt für eine Radtour durch den Englischen Garten.
+
+#### Michaeligarten (im Ostpark)
+Schöner Biergarten mit Blick auf einen kleinen See. Weniger bekannt, familienfreundlich, ideal für ruhige Stunden im Grünen.
+
+#### Flaucher Biergarten
+Urig gelegen an der Isar, mitten im Grünen. Besonders beliebt bei jungen Leuten und Familien, die vorher an der Isar grillen oder baden. Sehr entspannte, lockere Atmosphäre.
+
+#### Hofbräukeller am Wiener Platz
+Nicht zu verwechseln mit dem Hofbräuhaus! Hier gibt’s bayerische Gemütlichkeit ohne Massentourismus. Schöner Biergarten unter alten Kastanien, direkt am Wiener Platz in Haidhausen. Auch mit Spielplatz – ideal für Familien.
