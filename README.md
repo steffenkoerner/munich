@@ -112,21 +112,22 @@ Nicht zu verwechseln mit dem Hofbräuhaus! Hier gibt’s bayerische Gemütlichke
 [Mitani](https://www.google.com/search?q=mitani+japanisch&oq=mitani&gs_lcrp=EgZjaHJvbWUqCAgAEEUYJxg7MggIABBFGCcYOzIGCAEQRRg5MgYIAhBFGEAyFQgDEC4YFBivARjHARiHAhiABBiOBTINCAQQLhivARjHARiABDIGCAUQRRg8MgYIBhBFGDwyBggHEEUYPNIBBzk3MWowajeoAgCwAgA&sourceid=chrome&ie=UTF-8)
 
 ### Afghanisch
-[Chopan am Gasteig](https://chopan-am-gasteig.de/)
+- [Chopan am Gasteig](https://chopan-am-gasteig.de/)
 
 ### Indisch
-[Bombay Tandoori](https://www.bombay-tandoori.de/)
+- [Bombay Tandoori](https://www.bombay-tandoori.de/)
 
 ### Vietnamesisch
-[Ha Vietnamese](https://www.ha-vietnamesecuisine.de/)
+- [Ha Vietnamese](https://www.ha-vietnamesecuisine.de/)
 
 ## Coole Locations für Drinks
-[Ganz Wo anders](https://maps.app.goo.gl/pCAFPcGEJrRRG3RaA)
-[Dachgarten Gasteig](https://maps.app.goo.gl/MCcegnJxMLQTmQGs6)
-[Munich Beach Resort](https://maps.app.goo.gl/nvU3CCj57hy6LWjB9)
+- [Ganz Wo anders](https://maps.app.goo.gl/pCAFPcGEJrRRG3RaA)
+- [Dachgarten Gasteig](https://maps.app.goo.gl/MCcegnJxMLQTmQGs6)
+- [Munich Beach Resort](https://maps.app.goo.gl/nvU3CCj57hy6LWjB9)
 
 ## Gute Cocktails
-[Barroom](https://g.co/kgs/zEj2iqv)
+- [Barroom](https://g.co/kgs/zEj2iqv)
+- [Negroni Bar](https://g.co/kgs/rqsDJGW)
 
 
 
